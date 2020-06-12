@@ -29,3 +29,6 @@ Meather. Nay, then I list no harm.
     Some private brave? O me! my father Prince,
     A goodly spirit have they at the reply;
     For whom I speak tell hersIOK MISARIO. He hath parcel of  
+    
+    ![NLP](https://user-images.githubusercontent.com/57037068/84547961-a311e980-ad15-11ea-810b-d688b9fcb937.PNG)
+
